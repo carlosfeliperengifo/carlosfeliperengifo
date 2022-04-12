@@ -15,7 +15,11 @@ Centrale de Nantes (France). So far, I have supervised three successfully comple
 20 articles in well-known journals. 
 
 Email: caferen@unicauca.edu.co
+
 Facebook: https://www.facebook.com/carlosfelipe.rengifo.79/
+
 Linkedin: linkedin.com/in/carlos-felipe-rengifo-rodas-6354901b4
+
 Researchgate: https://www.researchgate.net/profile/Carlos-Rengifo-4
+
 Twitter: @carlosfrengifo
